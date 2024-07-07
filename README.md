@@ -1,0 +1,1 @@
+# CAD-Traing-Pivoting-shooter-OTB-Intake-Archetype
